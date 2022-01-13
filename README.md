@@ -8,6 +8,3 @@
 - 📫 How to reach me ...
 Phone:  00962-787878492
 Email: oma20180170@std.psut.edu.jo
-
-
-Here i Share project done by me 
